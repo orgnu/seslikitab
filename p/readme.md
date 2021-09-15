@@ -1,1 +1,1 @@
-Proqrama Uşaq və Erkən İnkişaf mövzuları əlavə edilməyib
+Proqrama Uşaq və Erkən İnkişaf, Şəhər və arxitektura mövzuları əlavə edilməyib
